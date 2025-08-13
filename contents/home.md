@@ -6,11 +6,11 @@ He is currently a Fellow in the Department of Earth and Planetary Sciences (EPS)
 
 #### Contact
 
-Email: senli[at]fas.harvard.edu
+Email: yanghaoran[at]sjtu.edu.cn
 
 #### Education
-M.E., Computer Science and Technology, China University of Mining and Technology, 2022—2025.\
-B.E., Data Science and Big Data Technology, China University of Mining and Technology, 2018—2022.
+M.E., School of Aeronautics and Astronautics, Shanghai Jiao Tong University, 2024 — 2027 (expected).\
+B.E., School of Aeronautics and Astronautics, Shanghai Jiao Tong University, 2020 - 2024.
 
 #### Research Interests
 Deep Learning, Artificial Intelligence Seismology, Mine Microseismic.
