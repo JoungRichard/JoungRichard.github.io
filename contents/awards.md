@@ -1,16 +1,12 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- First-class Scholarship of SJTU, 2024.
 
-- National Scholarship for Graduate Student, 2024.
+- Excellent Graduate of SJTU, 2024.
 
-- First-Prize Scholarship (CUMT), 2024.
+- Second-class Scholarship of SJTU, 2023
 
-- First-Prize Scholarship (CUMT), 2023.
+- Merit Student of SJTU, 2022.
 
-- Freshman Scholarship (CUMT), 2022.
+- Excellent League Member of SJTU, 2022.
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
+- Corporate-Funded Scholarship (2 times), 2021, 2022.
